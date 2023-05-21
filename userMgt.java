@@ -1,5 +1,5 @@
 Simon
 Dominion
-Ob
+Obi
 Landmark
-Ayoi
+Ayo
